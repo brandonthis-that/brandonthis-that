@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 this-that cause I'm HIM
 
 
